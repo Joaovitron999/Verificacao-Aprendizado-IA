@@ -1,0 +1,1 @@
+# Verificacao-Aprendizado-IA
